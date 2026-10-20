@@ -1,0 +1,2 @@
+# premium-bark-tan-oak-001-oak-bark-tanning-pit-layering
+Struggling to maintain consistent tannin levels across your oak bark pit layers? Most tanners waste material and time guessing at proper layering ratios—this Notion template eliminates the guesswork with a precision system.  The Oak Bark Tanning Pit Layering System Guide is a complete Notion workspace that tracks optimal bark-to-water ratios, ferme
